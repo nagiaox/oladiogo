@@ -6,5 +6,5 @@ rjkfb
     bvji8hffvb fv khvytdghcv ailbu/
     ,lkjgujfg f
     vjhviyhdj; gd
-     ,ujyxv;jjh  rsnfv ,
+     ,ujyxv;jjh  rsnfv
    
