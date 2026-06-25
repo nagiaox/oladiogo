@@ -3,7 +3,7 @@ rjkfb
  ewknnjbrkjR
  
     bvji8hffb fv khvytdghv a
-    ,lkjguj
+    ,lkjg
     vjhviyh
      ,ujyxv;jjh  rsf
   
